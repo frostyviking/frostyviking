@@ -3,8 +3,9 @@
 Sysadmin/network dude @ heart, started my route with tech/IT early 80s as a wee laddie.
 Love anything tech, innovative, games, -IT floats my boat as one might say.
 
-Fulltime employed and doing stuff on the side in my own business.
-Fulltime dad with my kids -a lot of work, so much love.
+Fulltime employed and doing stuff on the side in my own business. Fulltime dad with my kids -a lot of work, so much love.
+
+If im not doing any of the above then im in the gym lifting heavy ass weights. Strong body, strong mind -keeps frustration levels below 9000.
 
 Stay frosty.
 
