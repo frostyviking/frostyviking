@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 Sysadmin/network dude @ heart, started my route with tech/IT early 80 as a wee laddie.
-Love anything tech, innovative, games, -floats my boat as one might say.
+Love anything tech, innovative, games, -IT floats my boat as one might say.
 
 Fulltime employed and doing stuff on the side in my own business.
 Fulltime dad with my kids -a lot of work, so much love.
